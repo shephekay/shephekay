@@ -1,1 +1,10 @@
-- [The Other Side of the Underneath] (https://en.wikipedia.org/wiki/The_Other_Side_of_the_Underneath)
+- [The Other Side of the Underneath](https://en.wikipedia.org/wiki/The_Other_Side_of_the_Underneath)
+- Daisies
+- After Blue (Dirty Paradise)
+- Valerie and Her Week of Wonders
+- Kes
+- The Holy Mountain
+- How to Get Ahead in Advertising
+- Withnail and I
+- Adventures of the Baron Munchausen
+- Krysař
